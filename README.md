@@ -10,7 +10,7 @@
 
 
 📌 [LinkedIn](https://www.linkedin.com/in/erdemmurat/) <br/>
-📌 [muraterdem.org](muraterdem.org)
+📌 [www.muraterdem.org](https://www.muraterdem.org)
 
 
 ---
